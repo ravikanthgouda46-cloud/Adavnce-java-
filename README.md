@@ -27,6 +27,32 @@ https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/2a.png
 
 https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/2b.png
 
+3A
+
+https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/3a.png
+
+3B
+
+https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/3b.1.png
+
+https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/3b.2.png
+
+https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/3b.3.png
+
+https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/3b.4.png
+
+3c
+
+https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/3a.png
+
+https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/3c.2.png
+
+https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/3c.3.png
+
+https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/3c.4.png
+
+https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/3c.55.png
+
 4
 
 https://github.com/ravikanthgouda46-cloud/Adavnce-java-/blob/master/4a.png
